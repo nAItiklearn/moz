@@ -1,0 +1,1 @@
+before starting to make my actual editer , ive to revise some old things,and learn some new concepts :D
